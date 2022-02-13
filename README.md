@@ -1,1 +1,2 @@
 Bu yerda mening dastlabki git bilan tanishuv darsim joylangan
+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
